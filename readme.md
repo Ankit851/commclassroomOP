@@ -1,4 +1,4 @@
 # Community Classroom is OP
 
-- Kunal Kushwaha says that this community is amazing.
-- Kunal made this change
+- Ankit Mahajan says that this community is amazing.
+- Kunal Bhaiya has made this change so namaskara to him 
